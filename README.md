@@ -1,4 +1,4 @@
-### SEJAM BEM VINDOS, MEUS DIVOS 💋
+### SEJAM BEM VINDOS MEUS DIVOS 💋
 
 Meu Nome e Maria Clara ⭐
 - Estou Estudando na Alura 💟
